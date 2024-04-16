@@ -1,5 +1,5 @@
-Hey! Forget Bulletproof EVs, Quantum Computers, Graphene Radiators, Lucid Dream Caps, AI Datacenters… Where are we going to drive in the Bulletproof EVs? Through square fields and rivers with leached chemicals, to the nearest pine tree plantation that is harvested for cardboard?
-Now is the Time For Garden Robots.
+Hey! Forget Quantum Computers, Graphene Radiators, Lucid Dream Hats… Where are we going to drive in the Bulletproof EVs? Through square fields and rivers with leached chemicals, to the nearest pine tree plantation that is harvested for cardboard?
+Now is the time for garden robots which will make xenocides obsolete. 
 
 Project Phase 1: 
 ![graffiti wall art bot banner text](https://github.com/SnipersGaulois/SpeciesBot/assets/167179651/7be43d35-532e-44bb-806d-1cda6fe96fea)
