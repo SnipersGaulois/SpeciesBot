@@ -2,7 +2,7 @@ Hey! Forget Quantum Computers, Graphene Radiators, Lucid Dream Hats… Where are
 Now is the time for garden robots which will make xenocides and supermarkets obsolete. 
 
 Project Phase 1: 
-![graffiti wall art bot banner text](https://github.com/SnipersGaulois/SpeciesBot/assets/167179651/7be43d35-532e-44bb-806d-1cda6fe96fea)
+![graffiti wall art bot banner NOtext](https://github.com/SnipersGaulois/SpeciesBot/assets/167179651/7dc3da8c-9fb0-4087-b458-c278e62925e3)
 
 Project Phase 2:
 ![big small robot size comparison final ](https://github.com/SnipersGaulois/SpeciesBot/assets/167179651/ea037a5f-f1af-458a-8515-54bcc3b48ea7)
