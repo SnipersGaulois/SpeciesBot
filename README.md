@@ -1,5 +1,5 @@
 Hey! Forget Quantum Computers, Graphene Radiators, Lucid Dream Hats… Where are we going to drive in the Bulletproof EVs? Cruise through square fields and rivers with leached chemicals, to an eerie dark douglas forest that is harvested for cardboard?
-Now is the time for landscaper garden robots which will make xenocide based food obsolete. 
+Now is the time for landscaper garden robots which will make xenocide farming obsolete. 
 
 Project Phase 1, a graffiti robot:
 ![graffiti wall art bot banner NOtext](https://github.com/SnipersGaulois/SpeciesBot/assets/167179651/7dc3da8c-9fb0-4087-b458-c278e62925e3)
