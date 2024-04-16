@@ -1,4 +1,4 @@
-Hey! Forget Quantum Computers, Graphene Radiators, Lucid Dream Hats… Where are we going to drive in the Bulletproof EVs? Through square fields and rivers with leached chemicals, to an eerie dark douglas forest that is harvested for cardboard?
+Hey! Forget Quantum Computers, Graphene Radiators, Lucid Dream Hats… Where are we going to drive in the Bulletproof EVs? Cruise through square fields and rivers with leached chemicals, to an eerie dark douglas forest that is harvested for cardboard?
 Now is the time for garden robots which will make xenocides obsolete. 
 
 Project Phase 1: 
