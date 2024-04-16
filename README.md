@@ -1,5 +1,5 @@
 Hey! Forget Quantum Computers, Graphene Radiators, Lucid Dream Hats… Where are we going to drive in the Bulletproof EVs? Cruise through square fields and rivers with leached chemicals, to an eerie dark douglas forest that is harvested for cardboard?
-Now is the time for garden robots which will make xenocides obsolete. 
+Now is the time for garden robots which will make xenocides and supermarkets obsolete. 
 
 Project Phase 1: 
 ![graffiti wall art bot banner text](https://github.com/SnipersGaulois/SpeciesBot/assets/167179651/7be43d35-532e-44bb-806d-1cda6fe96fea)
